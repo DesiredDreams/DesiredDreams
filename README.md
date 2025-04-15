@@ -33,6 +33,8 @@ Me if u even care !! ^_^
 
 ✧-people who cant respect others opinions
 
+✧-SOME berryfunny shippers. idk u all just annoy me sm sometimes + i have a bad experience from u all
+
 ## Info ig?
 
 ✧-Fandoms! : Batim,Dw,Fpe,Ppt,Squid game,Forsaken,Minecraft,Phighting,fnaf,crk,kjp + much more !!
