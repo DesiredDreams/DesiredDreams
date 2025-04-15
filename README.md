@@ -41,13 +41,13 @@ Me if u even care !! ^_^
 
 ✧- proud and loud msi listener X3
 
-✧-Cross universe shipper
+✧-Cross universe + mirror shipper
 
 ✧-#1 Sprout simp/fan AND kinner. prove me wrong. u cant growls at!
 
 ✧-some ships i like ⬇
 
-✧-Flowerberry (any legal ship w/sprout)
+✧-Sproutcest. (basicly any legal ship w/sprout tho)
 
 ✧-mooncookies / cookieshow
 
