@@ -37,6 +37,8 @@ Me if u even care !! ^_^
 
 ✧-Fandoms! : Batim,Dw,Fpe,Ppt,Squid game,Forsaken,Minecraft,Phighting,fnaf,crk,kjp + much more !!
 
+✧-Feel free to ask/draw me anything u want 2! (arts current arent showen)
+
 ✧-byi keep in mind my mental state ISNT at the best state so if sometimes im mean or dry dont take my words seriously , pls dont only become my friend 2 have someone 2 comfort u i will try 2 help if u ever vent/rant 2 me or comfort obvi if i can but i wont JUST be ur friend 4 that. ty! + keep in mind i have other friends 2 so no dont get upset when sometimes i dont sit w/u
 
 ✧- proud and loud msi listener X3
