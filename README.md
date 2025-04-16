@@ -45,7 +45,7 @@ Me if u even care !! ^_^
 
 ✧- proud and loud msi listener X3
 
-✧-Cross universe + mirror shipper
+✧-Cross universe + mirror + poly shipper
 
 ✧-#1 Sprout simp/fan AND kinner. prove me wrong. u cant growls at!
 
