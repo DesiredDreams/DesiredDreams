@@ -33,7 +33,7 @@ Me if u even care !! ^_^
 
 ✧-people who cant respect others opinions
 
-✧-SOME berryfunny shippers. idk u all just annoy me sm sometimes + i have a bad experience from u all
+✧-SOME berryfunny shippers. idk u all just annoy me sm sometimes + i have a bad experience from u all (some of u all are cool but like sighs)
 
 ## Info ig?
 
