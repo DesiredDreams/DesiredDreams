@@ -71,7 +71,7 @@ Me if u even care !! ^_^
 
 ✧-B,sapphire x shadow milk cookie
 
-✧- and uhh well much MUCH more i might yep abt heh,,
+✧- and uhh well much MUCH more i might yap abt heh,,
 
 
 
