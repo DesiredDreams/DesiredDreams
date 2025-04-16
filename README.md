@@ -13,7 +13,7 @@ Me if u even care !! ^_^
 
 ✧Mostly offtab when friends arent online so w2i plslsls ✧
 
-✧ Dnc any of my cosplays or ocs pls ill confort u abt it either way if i see it , light inspo is allowed until asked if ur my friend ill prob often ofer 2 gift u my cosplays or let u take inspo of em depends how close we are ✧
+✧ Dnc any of my cosplays or ocs pls ill confort u abt it either way if i see it , light inspo is allowed until asked if ur my friend ill prob often offer 2 gift u my cosplays or let u take inspo of em depends how close we are ✧
 
 ✧around the age 16 to 19 heh no spoils of actual age..✧
 
@@ -48,6 +48,8 @@ Me if u even care !! ^_^
 ✧-Cross universe + mirror shipper
 
 ✧-#1 Sprout simp/fan AND kinner. prove me wrong. u cant growls at!
+
+✧-Bad grammar + spelling very often
 
 ✧-some ships i like ⬇
 
