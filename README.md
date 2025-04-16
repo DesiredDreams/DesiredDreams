@@ -5,7 +5,7 @@ Me if u even care !! ^_^
 ![image](https://github.com/user-attachments/assets/7dd10567-8b13-4974-94ef-e43e31a3d950)
 
 
-✧ Pup , Sprout , Nix ,Yatta , Character cosplaying as rn ✧
+✧ Pup , Sprout , Nix ,Yatta , Shelly , Character cosplaying as rn ✧
 
 ✧ She/Her but can use whatever u like !!✧
 
