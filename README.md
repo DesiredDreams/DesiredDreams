@@ -55,7 +55,7 @@ Me if u even care !! ^_^
 
 ✧-some ships i like ⬇
 
-✧-Sproutcest. (basicly any legal ship w/sprout tho)
+✧-Sproutcest. (basiclly any legal ship w/sprout tho)
 
 ✧-mooncookies / cookieshow
 
@@ -63,7 +63,7 @@ Me if u even care !! ^_^
 
 ✧-Cakeballon
 
-✧-any lesbian ship tehhe.. (legal ones ofc)
+✧-Any ship my friends like
 
 ✧-maybe maybe a tiny bit i might like coal x pebble but shshshsh..
 
