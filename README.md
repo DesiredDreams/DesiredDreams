@@ -55,7 +55,7 @@ Me if u even care !! ^_^
 
 ✧-some ships i like ⬇
 
-✧-Sproutcest. (basiclly any legal ship w/sprout tho)
+✧-Sproutcest. (basiclly any legal ship w/sprout tho) + Now, i wanna mention i know damn well qwel banned mirrorshipping but being honest i couldnt careless if she finds it that big of a deal then she can ban me for all i care mirrorshipping is very often in fandoms and if she cant handle it then as someone said in the dc serv she is not ready 2 have a fandom. simple as that i still fw sproutcest tysm!<3
 
 ✧-mooncookies / cookieshow
 
