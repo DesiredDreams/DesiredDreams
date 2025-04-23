@@ -69,7 +69,7 @@ Me if u even care !! ^_^
 
 ✧-skateboard x slingshot
 
-✧-B,sapphire x shadow milk cookie
+✧-B,sapphire x shadow milk 
 
 ✧- and uhh well much MUCH more i might yap abt heh,,
 
