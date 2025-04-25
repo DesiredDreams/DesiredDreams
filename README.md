@@ -33,7 +33,7 @@ Me if u even care !! ^_^
 
 ✧-people who cant respect others opinions
 
-✧-SOME berryfunny shippers. idk u all just annoy me sm sometimes + i have a bad experience from u all (some of u all are cool but like sighs)
+✧-Fankids. Fankids annnoys me sm can be one of my fav ship idc they so annoying n pushy prove me wrong u CANT.
 
 ## Info ig?
 
@@ -55,7 +55,7 @@ Me if u even care !! ^_^
 
 ✧-some ships i like ⬇
 
-✧-Sproutcest. (basiclly any legal ship w/sprout tho) + Now, i wanna mention i know damn well qwel banned mirrorshipping but being honest i couldnt careless if she finds it that big of a deal then she can ban me for all i care mirrorshipping is very often in fandoms and if she cant handle it then as someone said in the dc serv she is not ready 2 have a fandom. simple as that i still fw sproutcest tysm!<3
+✧-Sproutcest/Fruitcake/Flowerberry basiclly any LEGAL ship w/sprout 
 
 ✧-mooncookies / cookieshow
 
