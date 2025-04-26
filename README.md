@@ -74,25 +74,36 @@ Me if u even care !! ^_^
 ✧- and uhh well much MUCH more i might yap abt heh,,
 
 
+✧-Some of my comfort characters!  ⬇
+
+✧-Dw :
+
+✧-Sprout
+
+✧-Coal
+
+✧-Flyte
+
+✧-Fnaf :
+
+✧-Ft. Foxy
+
+✧-Lolbit
+
+✧-fpe :
+
+✧-Zip
+
+✧-Edward
+
+✧-and much much more giggles (might also yap abt these^^)
+
+
 
 
 
 ✧-Yeah and uhm this is what u all getting for now ill prob add more stuff soon enough .. if i wont get 2 lazy (neither of the two arts is mine creds to the creators)
 ![image](https://github.com/user-attachments/assets/ad89364b-a348-48d1-b3e2-24982f8b3796)
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 
 
 
