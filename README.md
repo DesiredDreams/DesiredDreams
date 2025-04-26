@@ -84,12 +84,6 @@ Me if u even care !! ^_^
 
 ✧-Flyte
 
-✧-Fnaf :
-
-✧-Ft. Foxy
-
-✧-Lolbit
-
 ✧-fpe :
 
 ✧-Zip
