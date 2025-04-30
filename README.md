@@ -2,12 +2,13 @@
 
 
 Me if u even care !! ^_^
-![image](https://github.com/user-attachments/assets/7dd10567-8b13-4974-94ef-e43e31a3d950)
+![image](https://github.com/user-attachments/assets/bc0777ee-d250-46fd-a606-7e3931214ea6)
 
 
-✧ Pup , Sprout , Nix ,Yatta , Shelly , Character cosplaying as rn ✧
 
-✧ She/Her but can use whatever u like !!✧
+✧ Pup , Sprout , Nix ,Casper , Shelly , Character cosplaying as rn ✧
+
+✧ She/Her&He/Him but can use whatever u like !!✧
 
 ✧Ask 4 c+h unless i have it in my name , feel free 2 int if i dont have dni on <3 ✧
 
@@ -33,13 +34,15 @@ Me if u even care !! ^_^
 
 ✧-people who cant respect others opinions
 
-✧-Fankids. Fankids annnoys me sm can be one of my fav ship idc they so annoying n pushy prove me wrong u CANT.
+✧-Dandys world fan kids. HOLY. dont get me started on em dni. godddddddd.
 
-## Info ig?
+✧-People who makes they whole personality abt venting like idm comforting but geez
+
+## Info ig guh
 
 ✧-Fandoms! : Batim,Dw,Fpe,Ppt,Squid game,Forsaken,Minecraft,Phighting,fnaf,crk,kjp + much more !!
 
-✧-Feel free to ask/draw me anything u want 2! (arts current arent showen)    (strawpage)
+✧-Feel free to ask/draw me anything u want 2! (arts current arent showen)  + (strawpage)
 
 ✧-byi keep in mind my mental state ISNT at the best state so if sometimes im mean or dry dont take my words seriously , pls dont only become my friend 2 have someone 2 comfort u i will try 2 help if u ever vent/rant 2 me or comfort obvi if i can but i wont JUST be ur friend 4 that. ty! + keep in mind i have other friends 2 so no dont get upset when sometimes i dont sit w/u
 
@@ -73,31 +76,16 @@ Me if u even care !! ^_^
 
 ✧- and uhh well much MUCH more i might yap abt heh,,
 
-
-✧-Some of my comfort characters!  ⬇
-
-✧-Dw :
-
-✧-Sprout
-
-✧-Coal
-
-✧-Flyte
-
-✧-fpe :
-
-✧-Zip
-
-✧-Edward
-
-✧-and much much more giggles (might also yap abt these^^)
+✧-I literlly live for Sprout btw i adore him more then u think..💔
 
 
 
 
 
-✧-Yeah and uhm this is what u all getting for now ill prob add more stuff soon enough .. if i wont get 2 lazy (neither of the two arts is mine creds to the creators)
-![image](https://github.com/user-attachments/assets/ad89364b-a348-48d1-b3e2-24982f8b3796)
+
+✧-Yeah and uhm this is what u all getting for now ill prob add more stuff soon enough .. if i wont get 2 lazy ( art on top isnt mine creds to the creators)
+
+![image](https://github.com/user-attachments/assets/b90b59b9-5c91-4c6d-8fba-899d0f813d7d)
 
 
 
