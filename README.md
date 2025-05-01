@@ -6,7 +6,7 @@ Me if u even care !! ^_^
 
 
 
-✧ Pup , Sprout , Nix ,Casper , Shelly , Character cosplaying as rn ✧
+✧ Pup , Sprout , Nix , Micheal , Character cosplaying as rn ✧
 
 ✧ She/Her&He/Him but can use whatever u like !!✧
 
