@@ -48,6 +48,8 @@ Me if u even care !! ^_^
 
 ✧-lowk Antisoc + possible ADHD
 
+✧-Dirty minded pervert 89% of the time when i have the energy if i say anything that makes u uncromftable lmk same goes for my habit of calling others names or simply swearing ill stop it then atleast around u guh
+
 ✧- proud and loud msi listener X3
 
 ✧-Cross universe + mirror + poly shipper
