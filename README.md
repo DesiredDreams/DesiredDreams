@@ -2,7 +2,8 @@
 
 
 Me if u even care !! ^_^
-![image](https://github.com/user-attachments/assets/31bd8958-7116-4a31-8652-245b579b034d)
+![image](https://github.com/user-attachments/assets/26864dbc-0417-415e-87d4-d0082e7f5b8e)
+
 
 
 
