@@ -2,6 +2,8 @@
 
 
 Me if u even care !! ^_^
+![image](https://github.com/user-attachments/assets/31bd8958-7116-4a31-8652-245b579b034d)
+
 
 
 
