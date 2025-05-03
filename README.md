@@ -88,7 +88,7 @@ Me if u even care !! ^_^
 
 
 
-✧-Yeah and uhm this is what u all getting for now ill prob add more stuff soon enough .. if i wont get 2 lazy ( art on top isnt mine creds to the creators)
+✧-Yeah and uhm this is what u all getting for now ill prob add more stuff soon enough .. if i wont get 2 lazy ( art on top isnt mine creds to the creator)
 
 ![image](https://github.com/user-attachments/assets/b90b59b9-5c91-4c6d-8fba-899d0f813d7d)
 
