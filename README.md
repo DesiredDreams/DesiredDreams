@@ -15,6 +15,7 @@ Me if u even care !! ^_^
 
 
 ✧ Pup , Sprout , Nix , Micheal , Character cosplaying as rn ✧   
+
 ✧ She/Her&He/Him but can use whatever u like (he/him mostly prefered but idm if u use she/her or anything else) !!✧
 
 ✧Ask 4 c+h unless i have it in my name , feel free 2 int if i dont have dni on <3 ✧
