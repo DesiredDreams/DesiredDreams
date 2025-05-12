@@ -52,7 +52,7 @@ Me if u even care !! ^_^
 
 ✧-Feel free to ask/draw me anything u want 2! (arts current arent showen)  + (strawpage)
 
-✧-byi keep in mind my mental state ISNT at the best state so if sometimes im mean or dry dont take my words seriously , pls dont only become my friend 2 have someone 2 comfort u i will try 2 help if u ever vent/rant 2 me or comfort obvi if i can but i wont JUST be ur friend 4 that. ty! + keep in mind i have other friends 2 so no dont get upset when sometimes i dont sit w/u
+✧-byi if i act mean 2 u or just in genereal kind of ignore u dont take it seriously im prob just in a bad mood i just dont mention it + PLS OMG understand i have friend sim more cromftable or close w/so pls dont complain if i go sit w/em instead of u pls.
 
 ✧-lowk Antisoc + possible ADHD
 
