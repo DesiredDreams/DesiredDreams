@@ -24,8 +24,6 @@ Me if u even care !! ^_^
 ✧ For more info go check out my Strawpage most things are said there its linked 2 profile✧
 
 
-![image](https://github.com/user-attachments/assets/b90b59b9-5c91-4c6d-8fba-899d0f813d7d)
-
 
 
 
