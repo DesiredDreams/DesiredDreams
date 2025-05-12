@@ -21,7 +21,7 @@ Me if u even care !! ^_^
 
 ✧around the age 16 to 19 heh no spoils of actual age..✧
 
-✧ plsplspls dont be scared 2 int w/me even if i have supporter i dont bite really ✧
+✧ plsplspls dont be scared 2 int w/me even if i have supporter i dont bite really (when i buy it ofc)✧
 
 ## ✧Dni -
 
