@@ -50,7 +50,7 @@ Me if u even care !! ^_^
 
 ✧-Fandoms! : Batim,Dw,Fpe,Ppt,Squid game,Forsaken,Minecraft,Phighting,fnaf,crk,kjp + much more !!
 
-✧-Feel free to ask/draw me anything u want 2! (arts current arent showen)  + (strawpage)
+✧-Feel free to ask/draw me anything u want 2! (strawpage)
 
 ✧-byi if i act mean 2 u or just in genereal kind of ignore u dont take it seriously im prob just in a bad mood i just dont mention it + PLS OMG understand i have friend sim more cromftable or close w/so pls dont complain if i go sit w/em instead of u pls.
 
