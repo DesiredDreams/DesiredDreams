@@ -21,7 +21,7 @@ Me if u even care !! ^_^
 
 ✧ Dnc my skins plsss just be creative ✧
 
-✧ For more info go check out my Strawpage most things are said there its linked 2 profile✧
+✧4 any more info read my strawpage !!✧
 
 
 
