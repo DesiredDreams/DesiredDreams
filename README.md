@@ -4,7 +4,8 @@
 Me if u even care !! ^_^   - (Not an irl or fict btw!!)
 
 
-![image](https://github.com/user-attachments/assets/997ac37c-bc8c-4c7b-b35f-c82c9c19e515)
+![image](https://github.com/user-attachments/assets/6d097c18-c958-44c6-9697-890489694877)
+
 
 
 
