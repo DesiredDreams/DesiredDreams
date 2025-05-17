@@ -13,7 +13,7 @@ Me if u even care !! ^_^
 
 
 
-✧ Pup , Sprout , Nix , Micheal , Shadow milk/ Smc Character cosplaying as rn ✧   
+✧ Pup , Ash/Ashes , Nix , Micheal , Shadow milk/ Smc Character cosplaying as rn ✧   
 
 ✧ She/Her&He/Him or any but He/Him/His prefered ✧
 
