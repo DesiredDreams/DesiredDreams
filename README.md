@@ -13,15 +13,17 @@ Me if u even care !! ^_^
 
 
 
-✧ Pup , Sprout , Nix , Micheal , Character cosplaying as rn ✧   
+✧ Pup , Sprout , Nix , Micheal , Shadow milk/ Smc Character cosplaying as rn ✧   
 
-✧ She/Her&He/Him or any but He/Him/His prefered
+✧ She/Her&He/Him or any but He/Him/His prefered ✧
 
 ✧ Mostly offtab so w2i!! ✧
 
-✧ Dnc my skins plsss just be creative ✧
+✧ Dnc my skins plsss just be creative urselffff ✧
 
-✧4 any more info read my strawpage !!✧
+✧ I mostly sit people im closer with im sorry if i just move away from you randomly or leave sometimes ✧ 
+
+✧ check my socials 4 more info !!! (prounounce page is still a wip guh) !!✧
 
 
 
