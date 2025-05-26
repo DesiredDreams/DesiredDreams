@@ -1,9 +1,10 @@
 ## " I've tried 2 bite the bullet . "
 
 
-Me if u even care !! ^_^ ⬇️ 
+ Im his No.1 Fan btw !! ^_^ ⬇️ 
 
-![Képernyőkép_2025-05-26_224718-removebg-preview (1)](https://github.com/user-attachments/assets/94fd2d87-8616-401a-baa4-5b84673f159e)
+ ![Képernyőkép_2025-05-26_225849-removebg-preview](https://github.com/user-attachments/assets/81ac38e8-7acc-45a3-9b66-b78c1363a03d)
+
 
 
 -----------------------------------------------------------------------------------------------------------------------------------------------------
