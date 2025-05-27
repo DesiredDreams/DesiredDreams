@@ -16,7 +16,7 @@
 
 ✧ Mostly offtab so w2i all the time !! ✧
 
-✧ Dnc my skins or take inspo w/o asking pls. ✧
+✧ Dnc My skins + dont take inspo w/o asking me ✧
 
 ✧ I mostly sit people im closer with im sorry if i just move away from you randomly or leave sometimes ✧ 
 
