@@ -10,7 +10,7 @@
 -----------------------------------------------------------------------------------------------------------------------------------------------------
 
 
-✧ Jester , Ash/Ashes , Pup , Shadow milk/ Smc / Character cosplaying as rn ✧   
+✧ Jester , Ash/Ashes , Pup , Shadow milk, Seedly / Character cosplaying as rn ✧   
 
 ✧ He/Him/His or They/Them/Theirs ✧
 
