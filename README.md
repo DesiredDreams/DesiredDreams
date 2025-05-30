@@ -1,7 +1,7 @@
 ## " I've tried 2 bite the bullet . "
 
 
- Im his No.1 Fan btw !! ^_^ ⬇️ 
+ Im literlly him btw !! ^_^ ⬇️ 
 
  ![Képernyőkép_2025-05-26_225849-removebg-preview](https://github.com/user-attachments/assets/81ac38e8-7acc-45a3-9b66-b78c1363a03d)
 
@@ -10,7 +10,7 @@
 -----------------------------------------------------------------------------------------------------------------------------------------------------
 
 
-✧ Jester , Ash/Ashes , Pup , Shadow milk, Seedly / Character cosplaying as rn ✧   
+✧ I go by Sprout , Seedly , Jester , Shadow milk feel free to call me amy of these ! ✧   
 
 ✧ He/Him/His or They/Them/Theirs ✧
 
