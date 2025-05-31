@@ -10,7 +10,7 @@
 -----------------------------------------------------------------------------------------------------------------------------------------------------
 
 
-✧ I go by Sprout , Seedly , Jester , Shadow milk feel free to call me amy of these ! ✧   
+✧ I go by Sprout , Seedly , Jester , Shadow milk feel free to call me any of these ! ✧   
 
 ✧ He/Him/His or They/Them/Theirs ✧
 
