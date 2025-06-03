@@ -25,9 +25,9 @@
 
 
 -----------------------------------------------------------------------------------------------------------------------------------------------------
-![image](https://github.com/user-attachments/assets/97f77e4b-5e58-44f1-981d-c25645cac960)
+LOOK AT THIS HANDSOME ASS MAN HIS SUCH A PRETTY BOY ILL MAKE OUT WITH HIM SO BAD PLS VRO
 
-
+https://github.com/user-attachments/assets/eafbdf87-861a-49fa-a192-7e28a1edb35f
 
 
 
