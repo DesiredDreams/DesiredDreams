@@ -1,34 +1,28 @@
-## " I've tried 2 bite the bullet . "
 
 
- Im literlly him btw !! ^_^ ⬇️ 
-
- ![Képernyőkép_2025-05-26_225849-removebg-preview](https://github.com/user-attachments/assets/81ac38e8-7acc-45a3-9b66-b78c1363a03d)
-
-
-
+## "  The red means i love you   . "
 -----------------------------------------------------------------------------------------------------------------------------------------------------
 
 
-✧ I go by Sprout , Seedly , Jester , Shadow milk feel free to call me any of these ! ✧   
+✧ Jester / Seedly / Sprout / Character cosplaying as rn | Nicknames completly allowed !!! |  ✧   
 
-✧ He/Him/His or They/Them/Theirs ✧
+✧ He/Him/His Prefered ✧
 
-✧ Mostly offtab so w2i all the time !! ✧
+✧ Mostly & often offtab so w2i all the time  | unless when talking 2 friends | !! ✧
 
 ✧ Dnc My skins + dont take inspo w/o asking me ✧
 
-✧ I mostly sit people im closer with im sorry if i just move away from you randomly or leave sometimes ✧ 
+✧ I mostly sit people im closer with (people mentioned in favs) so i mostly just randomly move away 2 sit w/em big sorry for that ✧ 
 
-✧ check my socials 4 more info !!! (might make more soon if i have any motivation for it) !!✧
+✧ check my socials 4 more info !! ✧
 
 
 
 -----------------------------------------------------------------------------------------------------------------------------------------------------
-LOOK AT THIS HANDSOME ASS MAN HIS SUCH A PRETTY BOY ILL MAKE OUT WITH HIM SO BAD PLS VRO
 
-https://github.com/user-attachments/assets/eafbdf87-861a-49fa-a192-7e28a1edb35f
+also me n him trust ❤️
 
+![image](https://github.com/user-attachments/assets/4b57c346-3f90-4166-a9ae-ade82c99eaec)
 
 
 
