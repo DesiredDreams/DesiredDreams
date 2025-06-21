@@ -1,44 +1,27 @@
-![image](https://github.com/user-attachments/assets/68ca9a63-1e2e-48bc-a840-942184cca536)
 
+![msx4jc](https://github.com/user-attachments/assets/5556172b-ece4-476f-bf56-85cfd5079468)
+ﮩ٨ـﮩﮩ٨ـ♤ﮩ٨ـﮩﮩﮩ٨ـﮩﮩ٨ـ♤ﮩ٨ـﮩﮩﮩ٨ـﮩﮩ٨ـ♤ﮩ٨ـﮩﮩ٨ـﮩﮩ٨ـ♤ﮩ٨ـﮩﮩﮩ٨ـﮩﮩ٨ـ♤ﮩ٨ـﮩﮩﮩ٨ـﮩﮩ٨ـ♤ﮩ٨ـﮩ٨ـﮩﮩ٨ـ♤ﮩ٨ـﮩﮩﮩ٨ـﮩﮩ٨ـ♤ﮩ٨ـﮩﮩﮩ٨ـﮩﮩ٨ـ♤ﮩ٨ـﮩ٨ـﮩﮩ٨ـ♤ﮩ٨ـﮩﮩﮩ٨ـﮩﮩ♤
 
-## "  T-ara - you drive me crazy !  . "
------------------------------------------------------------------------------------------------------------------------------------------------------
+✟ . Jester / Sprout / Character cosplaying as rn
 
+✟ . Dnc my skins & do NOT take inspo w/o asking me i dont take "i was scared 2 ask for inspo" as an excuse even if u were scared 2 ask u shouldnt have just take inspo w/o a word.
 
-✧ Jester / Seedly / Sprout / Character cosplaying as rn | Nicknames completly allowed !!! |  ✧   
+✟ . W2i all the time unless im already talking out of whisper feel free 2 come up 2 me then unless name says otherwise ofc
 
-✧ He/Him/His Prefered ✧
+✟ . I swear alot of times i cant stop myself 2 not 2 if ur uncomfy w/it then just dni or hide me
 
-✧ Mostly & often offtab so w2i all the time  | unless when talking 2 friends | !! ✧
+✟ . im a VERY jelouse person espeacilly when it comes 2 my bf i WILL go dry when im jelouse sorry for that
 
-✧ Dnc My skins + dont take inspo w/o asking me ✧
+✟ . i joke around alot & dont use tone tags unless u personally ask me 2 use them so its hard 2 tell when im joking if ur not sure if im joking then ASK instead of hating on me ??
 
-✧ I mostly sit people im closer with (people mentioned in favs) so i mostly just randomly move away 2 sit w/em big sorry for that ✧ 
+✟ . Spoutcest & Sprout defender & Glazer !!
 
-✧ check my socials 4 more info !! ✧
-
-
-
------------------------------------------------------------------------------------------------------------------------------------------------------
-
-also me n him trust ❤️
-
-![image](https://github.com/user-attachments/assets/4b57c346-3f90-4166-a9ae-ade82c99eaec)
+✟ . Check my pages for more info
 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
+ﮩ٨ـﮩﮩ٨ـ♤ﮩ٨ـﮩﮩﮩ٨ـﮩﮩ٨ـ♤ﮩ٨ـﮩﮩﮩ٨ـﮩﮩ٨ـ♤ﮩ٨ـﮩﮩ٨ـﮩﮩ٨ـ♤ﮩ٨ـﮩﮩﮩ٨ـﮩﮩ٨ـ♤ﮩ٨ـﮩﮩﮩ٨ـﮩﮩ٨ـ♤ﮩ٨ـﮩ٨ـﮩﮩ٨ـ♤ﮩ٨ـﮩﮩﮩ٨ـﮩﮩ٨ـ♤ﮩ٨ـﮩﮩﮩ٨ـﮩﮩ٨ـ♤ﮩ٨ـﮩ٨ـﮩﮩ٨ـ♤ﮩ٨ـﮩﮩﮩ٨ـﮩﮩ♤
+![mh245c](https://github.com/user-attachments/assets/d3aa1ead-f9d5-4298-b251-58cc3ecef52b)
 
 
 
