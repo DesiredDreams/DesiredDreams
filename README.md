@@ -10,7 +10,7 @@
 
 ✟ . I swear alot of times i cant stop myself 2 not 2 if ur uncomfy w/it then just dni or hide me
 
-✟ . im a VERY jelouse person espeacilly when it comes 2 my bf i WILL go dry when im jelouse sorry for that
+✟ . im a VERY jealouse person espeacilly when it comes 2 my bf i WILL go dry when im jelouse sorry for that
 
 ✟ . i joke around alot & dont use tone tags unless u personally ask me 2 use them so its hard 2 tell when im joking if ur not sure if im joking then ASK instead of hating on me ??
 
