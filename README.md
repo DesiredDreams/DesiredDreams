@@ -8,10 +8,8 @@
 
                                                                                                                                                                               
 
-                            # Clown / Jester / Character cosplaying as rn !
-                                                          
-                                      # He/Him/His prefered 
-                                                                                                                  
+                            # Clown / Jester / Character cosplaying as rn !         
+                                      # He/Him/His prefered                                                       
                                                  # Read Strawpage for more info !!
                                                                                                                       
 
