@@ -1,13 +1,10 @@
-                         ![image](https://github.com/user-attachments/assets/b352b177-edb7-41ad-9ccf-dddadd9aeb22)
 
-                         
-Remaking this soon enough ouh
-
-
-                         
+˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆. ࿐࿔ 
+　　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　✦　　　.　　. 　 ˚　.　　　　 　　 　　　　        ੈ✧̣̇˳·˖✶   ✦　　
 
 
 
+<img width="749" height="684" alt="image" src="https://github.com/user-attachments/assets/05fa7e82-825d-4ebc-8883-be5c56bd2b55" />
 
-
-
+˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆. ࿐࿔ 
+　　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　✦　　　.　　. 　 ˚　.　　　　 　　 　　　　        ੈ✧̣̇˳·˖✶   ✦　　
