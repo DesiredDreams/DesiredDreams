@@ -11,7 +11,7 @@
 
                             # Clown / Jester / Character cosplaying as rn !         
                                            # He/Him/His prefered                                                       
-                                                 # Read Strawpage for more info !!
+                                                     # Read Strawpage for more info !!
                                                                                                                       
 
                              ˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆. ࿐࿔ 
