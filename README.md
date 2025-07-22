@@ -13,7 +13,7 @@
                             # Clown / Jester / Character cosplaying as rn !
                                          
                                            # He/Him/His prefered !                              
-                                                     # Read pages for more info !!
+                                                     # Read pages for more info , Since ur here plss sign my ata smilesss
                                                                                                                                                       
 
                              ˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆. ࿐࿔ 
