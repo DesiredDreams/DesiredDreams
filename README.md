@@ -3,8 +3,9 @@
 　　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　✦　　　.　　. 　 ˚　.　　　　 　　 　　　　        ੈ✧̣̇˳·˖✶   ✦　　
 
 
-                          # LITERLLY ME AND MY CHARMING HUSBAND !!
-                            <img width="828" height="769" alt="image" src="https://github.com/user-attachments/assets/5ad984f8-0013-4c73-a683-9ff0fae2224f" />
+                          
+                                               <img width="510" height="490" alt="Képernyőkép_2025-08-07_135857-removebg-preview" src="https://github.com/user-attachments/assets/6c709091-c120-45e7-b0fe-7b71c23f7de0" />
+
 
 
 
