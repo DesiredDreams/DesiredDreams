@@ -4,7 +4,8 @@
 
                                  # ME AND MY HUSB GUYS TRUSTTTT
                           
-                                             <img width="913" height="695" alt="image" src="https://github.com/user-attachments/assets/e63703c5-b446-47b3-b48f-47f2596ab124" />
+                                             <img width="1051" height="771" alt="image" src="https://github.com/user-attachments/assets/35d01a2b-b0fe-4952-b153-5eefc7050816" />
+
 
            
 
