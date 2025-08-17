@@ -2,7 +2,7 @@
                              ˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆. ࿐࿔ 
 　　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　✦　　　.　　. 　 ˚　.　　　　 　　 　　　　        ੈ✧̣̇˳·˖✶   ✦　　
 
-                 # Clown / Jester / Character cosplaying as rn !   # He/Him/His prefered
+                 # Clown / Jester / Two time / Character cosplaying as rn !   # He/Him/His prefered
                                      
                    # Read pages for more info !                 
                           
