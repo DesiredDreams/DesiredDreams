@@ -10,7 +10,7 @@
                                                                                                                                   " 𝓘𝓷 𝓮𝓿𝓮𝓻𝔂 𝓤𝓷𝓲𝓿𝓮𝓻𝓼𝓮 𝓲𝓷 𝓪𝓵𝓵 𝓹𝓸𝓼𝓼𝓲𝓫𝓪𝓵𝓲𝓽𝔂𝓼 𝓸𝓷𝓵𝔂 𝔂𝓸𝓾. "
 
 
-                                pfp was made by @RUSH0UR_ on twitter !!
+                                pfp was made by me gulps
 
 
 
