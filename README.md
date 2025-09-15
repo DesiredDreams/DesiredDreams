@@ -18,7 +18,7 @@
  l - /
   d- (opy n paste it un/ess im /azy
  k- prob !ust wont use it un/ess im not /azy 2 (opy n paste it
- J-!
+ J- !
  Thats a// 4 now gu/ps..
 
 
