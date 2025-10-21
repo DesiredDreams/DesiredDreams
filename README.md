@@ -6,7 +6,8 @@
                                      
                    # Read pages for more info !                 
                                
-                                 <img width="804" height="602" alt="image" src="https://github.com/user-attachments/assets/3066e062-a912-4014-b627-ea1bb5b89316" />
+                                <img width="467" height="639" alt="image" src="https://github.com/user-attachments/assets/e32afbe6-03ea-4b43-95da-0a71734fb75a" />
+
 
 
              also me n him btw smiless
