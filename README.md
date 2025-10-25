@@ -6,7 +6,8 @@
                                      
                    # Read pages for more info !                 
                                
-                             
+                             <img width="505" height="494" alt="Képernyőkép_2025-10-26_004233-removebg-preview (1)" src="https://github.com/user-attachments/assets/0b03bb4b-cd99-49df-8053-089808286e54" />
+
                                                                                                                                   " 𝓘𝓷 𝓮𝓿𝓮𝓻𝔂 𝓤𝓷𝓲𝓿𝓮𝓻𝓼𝓮 𝓲𝓷 𝓪𝓵𝓵 𝓹𝓸𝓼𝓼𝓲𝓫𝓪𝓵𝓲𝓽𝔂𝓼 𝓸𝓷𝓵𝔂 𝔂𝓸𝓾. "
 
                                                                                                       
