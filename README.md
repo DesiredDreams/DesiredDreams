@@ -3,8 +3,9 @@
                     
 
               
-                               
-                             <img width="505" height="494" alt="Képernyőkép_2025-10-26_004233-removebg-preview (1)" src="https://github.com/user-attachments/assets/0b03bb4b-cd99-49df-8053-089808286e54" />
+                              <img width="693" height="693" alt="image" src="https://github.com/user-attachments/assets/aa553ead-005e-4bf5-b581-e57dbd1f7883" />
+
+                             HEAVY CRDS 2 GUMMY 4 THIS THHANNYUU SMMM
 
                                                                                                                                   
 
