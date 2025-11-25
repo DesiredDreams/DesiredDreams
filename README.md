@@ -3,12 +3,14 @@
                     
 
               
-                              <img width="693" height="693" alt="image" src="https://github.com/user-attachments/assets/aa553ead-005e-4bf5-b581-e57dbd1f7883" />
+                             <img width="736" height="736" alt="tumblr_d6d59bed734225793b0ee1db51de97ee_66be4443_1280" src="https://github.com/user-attachments/assets/7ab91415-d7b3-4ed2-b7bd-d1b8f6648603" />
 
-                             HEAVY CRDS 2 GUMMY 4 THIS THHANNYUU SMMM
+
+
+
+                           
 
                                                                                                                                   
-
              # Clown / Jester / Two time / Character cosplaying as rn !   # He/Him/His prefered
                                      
                    # Read pages for more info !                                                                                                             
