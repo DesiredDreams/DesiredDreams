@@ -15,7 +15,7 @@ https://github.com/user-attachments/assets/1b58ca04-9181-440d-9e6c-178244e910ba
                            
 
                                                                                                                                   
-             # Clown / Jester / Two time / Character cosplaying as rn !   # He/Him/His prefered
+             # Clown / Jester / Two time / Vox / Character cosplaying as rn !   # He/Him/His prefered
                                      
                    # Read pages for more info !                                                                                                             
                                                                                                                                             
