@@ -1,7 +1,7 @@
 
 
                     
-<img width="260" height="346" alt="Képernyőkép_2025-12-19_165209-removebg-preview" src="https://github.com/user-attachments/assets/e2fb2311-1b17-4f86-875f-50e4fa633f1e" /> # Clown / Jester / Two time / Vox / Character cosplaying as rn !   # He/Him/His prefered
+<img width="260" height="346" alt="Képernyőkép_2025-12-19_165209-removebg-preview" src="https://github.com/user-attachments/assets/e2fb2311-1b17-4f86-875f-50e4fa633f1e" /> # Clown / Jester / Two time / Vox / Character cosplaying as rn !   # He/Him/His prefered . Non-sharing Jester n Sprouts yume
                         
                    # Read pages for more info !                                                                                                             
                                                                                                                                             
