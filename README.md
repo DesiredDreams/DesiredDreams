@@ -1,8 +1,6 @@
 
 
-                    
-<img width="464" height="538" alt="Képernyőkép_2025-12-29_144307-removebg-preview" src="https://github.com/user-attachments/assets/ec4971c0-e73a-41fd-b466-36a891248a00" />
-                                                                                     
+                                                                                              
                                                                                        
                      
                         
