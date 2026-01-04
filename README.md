@@ -1,5 +1,6 @@
 
-                        
+   <img width="2048" height="740" alt="tumblr_d1ff6f4827bb76300ac59ac219a427ba_7e857a87_2048" src="https://github.com/user-attachments/assets/0ac5aedc-ee5e-443c-89c6-0b29fc3715ce" />
+
  
  ![Untitled12_20260104045536](https://github.com/user-attachments/assets/4e49d4ca-efc9-4b17-a021-0028f3fcada1) # Clown / Jester / Two time / Character cosplaying as rn !   # He/Him/His prefered . Read pages 4 info .
                                                                                                                        
