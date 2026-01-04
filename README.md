@@ -4,7 +4,7 @@
                                                                                        
                      
                         
-  # Clown / Jester / Two time / Vox / Character cosplaying as rn !   # He/Him/His prefered . Non-sharing Jester n Sprouts yume n non sharing harlequin yume
+  # Clown / Jester / Two time / Character cosplaying as rn !   # He/Him/His prefered . Read pages 4 info .
                                                                            
                                                                                                                              
                                                                                                                                             
