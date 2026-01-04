@@ -1,8 +1,4 @@
 
-
-                                                                                              
-                                                                                       
-                     
                         
   # Clown / Jester / Two time / Character cosplaying as rn !   # He/Him/His prefered . Read pages 4 info .
                                                                            
