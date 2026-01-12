@@ -1,8 +1,12 @@
 
-   <img width="2048" height="740" alt="tumblr_d1ff6f4827bb76300ac59ac219a427ba_7e857a87_2048" src="https://github.com/user-attachments/assets/0ac5aedc-ee5e-443c-89c6-0b29fc3715ce" />
+<img width="1024" height="343" alt="tumblr_aaee8060935f91ec97ab72100a8a318b_8d7cea6e_1280" src="https://github.com/user-attachments/assets/e4720f42-72e1-4579-bf9d-d0a4ea22079c" />
 
- 
- ![Untitled12_20260104045536](https://github.com/user-attachments/assets/4e49d4ca-efc9-4b17-a021-0028f3fcada1) # Clown / Jester / Two time / Character cosplaying as rn !   # He/Him/His prefered . Read pages 4 info .
+
+<img width="481" height="518" alt="Képernyőkép_2026-01-12_225609-removebg-preview" src="https://github.com/user-attachments/assets/9445d058-c54c-47a1-9bc7-66e21cf5169d" />
+
+
+
+  # Clown / Jester / Two time / Character cosplaying as rn !   # He/Him/His prefered . Read pages 4 info .
                                                                                                                        
                                                                                                                                          
                                           a/rrr soooooooooooooooooooo  the thing is sin(e my keyboar is bro ken heres the uhh things i// use instead 
@@ -14,6 +18,7 @@
                           
                                                    
 
-<img width="1280" height="91" alt="qbt8oe" src="https://github.com/user-attachments/assets/af415d46-adb9-47bd-976a-4443158179a8" />
+<img width="1280" height="412" alt="tumblr_c5ef2d5d69aafca7f4afc2a062092127_4c417495_1280" src="https://github.com/user-attachments/assets/b23e80f4-ad51-446f-8271-6cfd543605de" />
+
 
 
