@@ -1,10 +1,5 @@
 
-<img width="1024" height="343" alt="tumblr_aaee8060935f91ec97ab72100a8a318b_8d7cea6e_1280" src="https://github.com/user-attachments/assets/e4720f42-72e1-4579-bf9d-d0a4ea22079c" />
-
-
-
-                            
-<img width="354" height="414" alt="Képernyőkép_2026-01-22_200422-removebg-preview" src="https://github.com/user-attachments/assets/4b137bf0-a55d-409e-87c0-1b4fbbd7e404" />
+![a-regect-regect](https://github.com/user-attachments/assets/8f5478fc-31e3-46e1-9eb7-006a2e708484)
 
 
 
