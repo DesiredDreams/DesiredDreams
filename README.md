@@ -1,10 +1,5 @@
 
-<img width="912" height="273" alt="Képernyőkép_2026-01-30_093012-removebg-preview" src="https://github.com/user-attachments/assets/5bcb156a-8a94-470e-a568-96f24c144978" />
-
-
-
-
-![Untitled13_20260130092856](https://github.com/user-attachments/assets/1a778e01-f4a7-49eb-91fd-4e555259b607)
+![Untitled19_20260207234659](https://github.com/user-attachments/assets/96aeddca-2a72-4e24-a996-7ed064a413a3)
 
 
 
