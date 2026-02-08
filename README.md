@@ -1,3 +1,5 @@
+https://lenshaming.straw.page read this len deserves the hate EWWW 
+
 
 ![Untitled19_20260207234816](https://github.com/user-attachments/assets/eeea0ac3-aef0-439f-9368-39ba6d3528e8)
 
