@@ -1,7 +1,11 @@
 https://lenshaming.straw.page read this len deserves the hate EWWW 
 
 
-![Untitled19_20260207234816](https://github.com/user-attachments/assets/eeea0ac3-aef0-439f-9368-39ba6d3528e8)
+<img width="1000" height="1000" alt="Képernyőkép_2026-02-15_135315-removebg-preview" src="https://github.com/user-attachments/assets/445e7b39-f6a5-4bf7-82f8-b028d5062988" />
+
+
+
+
 
 
 
