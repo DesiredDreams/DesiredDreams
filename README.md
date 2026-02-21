@@ -4,7 +4,8 @@ https://lenshaming.straw.page read this len deserves the hate EWWW
 
 
 
-![poppy-playtime-chapter-5-the-prototype](https://github.com/user-attachments/assets/6693d41f-9354-4609-881f-0e8b81ef036a)
+<img width="1000" height="1000" alt="image" src="https://github.com/user-attachments/assets/e06edeeb-75dc-4e15-9f1c-ed4b9c54fe77" />
+
 
 
 
