@@ -4,7 +4,9 @@ https://lenshaming.straw.page read this len deserves the hate EWWW
 
 
 
-<img width="1000" height="1000" alt="image" src="https://github.com/user-attachments/assets/e06edeeb-75dc-4e15-9f1c-ed4b9c54fe77" />
+<img width="800" height="800" alt="Képernyőkép_2026-02-21_185753-removebg-preview" src="https://github.com/user-attachments/assets/0b7cfc64-3abb-470f-a34e-996f2b9e488e" />
+
+
 
 
 
