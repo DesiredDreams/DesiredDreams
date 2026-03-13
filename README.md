@@ -6,13 +6,6 @@ https://lenshaming.straw.page read this len deserves the hate EWWW
 
 
 
-
-
-
-
-
-
-
   # Clown / Jester / Two time / Character cosplaying as rn !   # He/Him/His prefered . Read pages 4 info .
                                                                                                                        
                                                                                                                                          
