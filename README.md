@@ -1,13 +1,11 @@
-https://lenshaming.straw.page read this len deserves the hate EWWW 
+
+          Clown / Jester  / Two time / Character cosplaying as rn  !   # He/Him/His prefered . Read pages 4 info .
+                                         [Len hating]( https://lenshaming.straw.page )        [Ata]( https://d6esired6.atabook.org/ )     [straw]( https://thecircusoffreaks.straw.page )    [en.pronouns]( https://en.pronouns.page/@desired_dreams )    [guns]( https://guns.lol/desireddreams )    [rentry]( https://rentry.co/jesterquin )      [pronouns.cc]( pronouns.cc/@DesiredDreams)
 
 
-
-
-
-
-
-  # Clown / Jester / Two time / Character cosplaying as rn !   # He/Him/His prefered . Read pages 4 info .
-                                                                                                                       
+                               
+                                                                        Isaac is my cute little cum sucker 🥹🥹✌️
+                                                                    
                                                                                                                                          
                                           a/rrr soooooooooooooooooooo  the thing is sin(e my keyboar is bro ken heres the uhh things i// use instead 
 
