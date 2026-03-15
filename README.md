@@ -2,8 +2,14 @@
           Clown / Jester  / Two time / Character cosplaying as rn  !   # He/Him/His prefered . Read pages 4 info .
                                          [Len hating]( https://lenshaming.straw.page )        [Ata]( https://d6esired6.atabook.org/ )     [straw]( https://thecircusoffreaks.straw.page )    [en.pronouns]( https://en.pronouns.page/@desired_dreams )    [guns]( https://guns.lol/desireddreams )    [rentry]( https://rentry.co/jesterquin )      [pronouns.cc]( pronouns.cc/@DesiredDreams)
 
-                                         
-                                                                      
+
+
+
+                                          Important yo -> [doc]( https://docs.google.com/document/d/1BBwjqAUA3y0w1DYhgzj7ejyrjyLYkwfZm6sAdqDgoME/edit?tab=t.0 )
+
+
+                                         
+                            
                                                   
                                                                                                                                                                                                                                                         a/rrr soooooooooooooooooooo  the thing is sin(e my keyboar is bro ken heres the uhh things i// use instead 
 
