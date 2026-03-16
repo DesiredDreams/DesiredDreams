@@ -5,7 +5,7 @@
 
 
 
-                                          Important yo -> [doc]( https://docs.google.com/document/d/1BBwjqAUA3y0w1DYhgzj7ejyrjyLYkwfZm6sAdqDgoME/edit?tab=t.0 )
+                                          Important yo -> [doc/straw]( https://addresing.straw.page )
 
 
                                          
