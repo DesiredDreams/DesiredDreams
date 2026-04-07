@@ -3,7 +3,7 @@
 
 
   
-  Clown / Jester  / Two time / Character cosplaying as rn  !   # He/Him/His prefered . Read pages 4 info .
+  Clown / Jester  / Boris / Character cosplaying as rn  !   # He/Him/His prefered . Read pages 4 info .
                                                                                              [Len hating]( https://lenshaming.straw.page )        [Ata]( https://d6esired6.atabook.org/ )     [straw]( https://thecircusoffreaks.straw.page )    [en.pronouns]( https://en.pronouns.page/@desired_dreams )    [guns]( https://guns.lol/desireddreams )    [rentry]( https://rentry.co/jesterquin )      [pronouns.cc](https://pronouns.cc/@DesiredDreams)
 
 
