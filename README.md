@@ -1,5 +1,6 @@
 
-![boris-pavlikovsky-boris-the-goldfinch](https://github.com/user-attachments/assets/d1fb1cf0-4d38-4581-9aea-63e1c0c6cea3)
+<img width="1344" height="694" alt="Képernyőkép 2026-04-16 165041" src="https://github.com/user-attachments/assets/f52a1e12-ea7f-4ada-b05d-c676b33d0c9a" />
+
 
 
   
