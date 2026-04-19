@@ -1,4 +1,4 @@
-<img width="1000" height="600" alt="Képernyőkép 2026-04-16 165041" src="https://github.com/user-attachments/assets/f52a1e12-ea7f-4ada-b05d-c676b33d0c9a" />
+<img width="700" height="400" alt="Képernyőkép 2026-04-16 165041" src="https://github.com/user-attachments/assets/f52a1e12-ea7f-4ada-b05d-c676b33d0c9a" />
 
 Clown / Jester  / Boris / Character cosplaying as rn  !                              
   
