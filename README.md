@@ -9,7 +9,7 @@ Clown / Jester  / Boris / Character cosplaying as rn  !
                                           
 He/Him/His prefered .                                                                        
                                                        
- Read pages 4 info .                                                                                     [lovemail]( https://lovemailwahwahwah.straw.page )            [Len hating]( https://lenshaming.straw.page )        [Ata]( https://d6esired6.atabook.org/ )  [en.pronouns]( https://en.pronouns.page/@desired_dreams )    [guns]( https://guns.lol/desireddreams )    [rentry]( https://rentry.co/jesterquin )     [pronouns.cc](https://pronouns.cc/@DesiredDreams) strawpage soon
+ Read pages 4 info .                                                                                               [Len hating]( https://lenshaming.straw.page )        [Ata]( https://d6esired6.atabook.org/ )  [en.pronouns]( https://en.pronouns.page/@desired_dreams )    [guns]( https://guns.lol/desireddreams )    [lovemail]( https://lovemailwahwahwah.straw.page )       [pronouns.cc](https://pronouns.cc/@DesiredDreams) strawpage soon
 
 
                                                    
