@@ -1,18 +1,19 @@
-<img width="700" height="400" alt="Képernyőkép 2026-04-16 165041" src="https://github.com/user-attachments/assets/f52a1e12-ea7f-4ada-b05d-c676b33d0c9a" />
+<img width="922" height="515" alt="image" src="https://github.com/user-attachments/assets/4ec54a72-7b41-45e2-b28d-b6cee1684a1e" />
 
+                              
 Clown / Jester  / Boris / Character cosplaying as rn  !                              
-  
+                                          
 He/Him/His prefered .                                                                        
-                                             
+                                                       
  Read pages 4 info .                                                                                     [lovemail]( https://lovemailwahwahwah.straw.page )    [Len hating]( https://lenshaming.straw.page )        [Ata]( https://d6esired6.atabook.org/ )  [en.pronouns]( https://en.pronouns.page/@desired_dreams )    [guns]( https://guns.lol/desireddreams )    [rentry]( https://rentry.co/jesterquin )     [pronouns.cc](https://pronouns.cc/@DesiredDreams) strawpage soon
 
 
-                                         
- a/rrr soooooooooooooooooooo  the thing is sin(e my keyboar is bro ken heres the uhh things i// use instead 
-
-              c - (    l - /      d- (opy n paste it un/ess im /azy     k- prob !ust wont use it un/ess im not /azy 2 (opy n paste it
-                             J- !        
-                      Thats a// 4 now gu/ps..     
+                                                   
+ a/rrr soooooooooooooooooooo  the thing is since my keyboar is bro ken heres the uhh things ill use instead 
+          
+   c - (    l - /      d- copy n paste it unless im lazy  k- |<       J- !
+          
+                      Thats al 4 now gulps..     
                          
                           
                                                    
