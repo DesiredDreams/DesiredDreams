@@ -11,7 +11,7 @@ He/Him/His prefered .
                                                    
  a/rrr soooooooooooooooooooo  the thing is since my keyboar is bro ken heres the uhh things ill use instead 
           
-   c - (    l - /      d- copy n paste it unless im lazy  k- |<       J- !
+                  c - (    l - /      d- copy n paste it unless im lazy  k- |<       J- !
           
                       Thats al 4 now gulps..     
                          
