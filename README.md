@@ -1,3 +1,7 @@
+                                                             
+                       <img width="431" height="167" alt="Képernyőkép_2026-05-06_213204-removebg-preview" src="https://github.com/user-attachments/assets/86908616-32b9-4100-a61c-01cad6c751fb" />
+
+
 <img width="922" height="515" alt="image" src="https://github.com/user-attachments/assets/4ec54a72-7b41-45e2-b28d-b6cee1684a1e" />
 
                               
