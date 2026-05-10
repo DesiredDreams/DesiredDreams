@@ -1,3 +1,3 @@
-<img width="857" height="568" alt="Képernyőkép 2026-04-04 130153" src="https://github.com/user-attachments/assets/1c779c24-f97f-4870-bc37-47c88a787b72" />
 
 
+<img width="263" height="357" alt="image" src="https://github.com/user-attachments/assets/31bdc6c2-8210-4584-bd06-8d4f96f13876" />
