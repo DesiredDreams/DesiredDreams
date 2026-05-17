@@ -10,7 +10,7 @@
                                           
 He/Him/His prefered .                                                                        
                                                        
- Read pages 4 info .                                                                            [Rentry](https://rentry.co/soundtrackss)         [Ata]( https://d6esired6.atabook.org/ )  [en.pronouns]( https://en.pronouns.page/@desired_dreams )    [guns]( https://guns.lol/desireddreams )  [pronouns.cc](https://pronouns.cc/@DesiredDreams)  strawpage soon
+ Read pages 4 info .                                                                            [Rentry](https://rentry.co/soundtrackss)         [Ata]( https://d6esired6.atabook.org/ )  [en.pronouns]( https://en.pronouns.page/@desired_dreams )   [pronouns.cc](https://pronouns.cc/@DesiredDreams)  strawpage soon
 
 
                                                    
