@@ -1,5 +1,5 @@
-                                                                     
-
+</p>                                                                     
+<img src="https://readme-typing-svg.demolab.com/?lines=666+on+my+crucifix!;My+body+is+yearning;body+is+yearning&font=Fira%20Code&center=true&width=380&height=50&duration=4000&pause=1000" alt="Example Usage - README Typing SVG">
  
  <img width="830" height="823" alt="Untitled56_20260531230805" src="https://github.com/user-attachments/assets/d6e94007-c1f6-4bc6-8138-15d7ef257fb5" />
 
